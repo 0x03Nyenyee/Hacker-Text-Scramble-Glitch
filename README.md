@@ -1,2 +1,2 @@
-# Hacker-Text-Scramble-Glitch
+# Hacker-Text-Scramble-Glitchs
 By,. WebVision
